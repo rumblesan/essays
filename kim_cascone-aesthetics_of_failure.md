@@ -125,17 +125,32 @@ If glitch music is to advance past its initial stage of blind experimentation, n
 ### Discography
 
 * Christian Fennesz. 1999. **+475637-165108**. London: Touch TO:40
+    <https://fenneszreleases.bandcamp.com/album/plus-forty-seven-degrees-56-37-minus-sixteen-degrees-51-08>
 * Farmers Manual. 1999. **No Backup**. Vienna: Mego MEGO008.
+    <https://farmersmanual.bandcamp.com/album/no-backup-backup>
 * Kim Cascone. 1999. **cathodeFlower**. Frankfurt: Mille Plateaux/Ritornell RIT06.
+    <https://silentrecords.bandcamp.com/album/cathodeflower>
 * Mika Vainio. 1997. **Onko**. London: Touch TO:34.
+    <https://mikavainio.bandcamp.com/album/onko>
 * Mouse On Mars. 1995. **Vulvaland**. London: Too Pure 36.
+    <https://www.discogs.com/release/297385-Mouse-On-Mars-Vulvaland>
 * Neina. 1999. **Formed Verse**. Frankfurt: Mille Plateaux MPCD72.
+    <https://www.discogs.com/release/73886-Neina-Formed-Verse>
 * Noisei Sakata and Richard Chartier. 1999. **\*0/rc**. Brooklyn: 12k 12k.1006.
+    <https://boomkat.com/products/0r22a1b6324d8e1c3fe4051eeef8c26a13f91a5817>
 * Noto. 1998. **Kerne**. Bad Honnef: Plate Lunch PL04.
+    <https://noton.info/product/n-007/>
 * Oval. 1994. **Systemische**. Frankfurt: Mille Plateaux MPCD9
+    <https://oval.bandcamp.com/album/systemisch-remastered-2013-reissue>
 * Pimmon. 1999. **Waves and Particles**. Tokyo: Meme MEME015CD.
+    <https://www.discogs.com/release/221959-Pimmon-Waves-And-Particles>
 * Pita. 1999. **Seven Tons for Free**. Osaka: Digital Narcis MEGO009.
+    <https://boomkat.com/products/seven-tons-for-free>
 * Ryoji Ikeda. 1996. **+/-**. London: Touch TO:30
+    <https://www.discogs.com/release/51547-Ryoji-Ikeda-->
 * Various Artists. 1999. **Microscopic Sound**. New York: Caipirinha Music CAI2021-2.
+    <https://www.discogs.com/release/264115-Various-Microscopic-Sound>
 * Various Artists. 2000. **blueCubism**. Osaka: Digital Narcis DNCD007.
+    <https://rateyourmusic.com/release/comp/various-artists/bluecubism-transcoded-audio-structures.p/>
 * Various Artists. 2000. **Clicks and Cuts**. Frankfurt: Mille Plateaux MPCD079.
+    <https://www.discogs.com/release/3160-Various-Clicks__Cuts>
