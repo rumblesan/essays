@@ -117,7 +117,7 @@ If glitch music is to advance past its initial stage of blind experimentation, n
 * Idhe, D. 1976. **Listening and Voice: A Phenomenology of Sound**. Athens, Ohio: Ohio University Press.
 * Kahn, D. 1999. **Noise, Water, Meta**. Cambridge, Massachusetts: MIT Press.
 * Negroponte, N. 1998. "Beyond Digital." **Wired** 6(12)
-* Ostertag, B. 1998. "Why Computer Music Sucks." Available online at <https://www.creativegames.org.uk/modules/Art_Technology/theory/authors/bob_ostertag.htm>
+* Ostertag, B. 1998. "Why Computer Music Sucks." Originally available online at http://www.l-m-c.org/uk/texts/ostertag.html but reproduced [here](./bob_ostertag-why_computer_music_sucks.md)
 * Revill, D. 1992. **The Roaring Silence. John Cage: A Life**. New York: Arcade Publishing.
 * Russolo, L. 1987. **The Art of Noises**. New York: Pendragon Press. (Originally published in 1913.)
 * Whitehead, C 1999. **The Intuitionist**. New York: Anchor Books.
